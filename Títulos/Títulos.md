@@ -1,3 +1,5 @@
 - Memories Of Me
 - Memories Last Forever
 - Memories
+- Die no Memories
+- Memórias apagadas
